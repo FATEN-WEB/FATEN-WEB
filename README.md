@@ -1,5 +1,6 @@
 - 👋 Hi, I’m **FATEN HASNAOUI** 
 - :pencil: I’m currently learning **TESTING** 
+- :see_no_evil: i love :cherries: :musical_score::ocean::hibiscus::dancer:
 
 
 ![FATEN HASNAOUI](https://github.com/FATEN-WEB/FATEN-WEB/blob/main/FB_IMG_1623054211509.jpg)
